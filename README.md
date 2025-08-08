@@ -20,18 +20,33 @@ Born: October 15, 1931, in Rameswaram, Tamil Nadu, India
 2002–2007: Served as the 11th President of India.
 2008-tillPromoted education, innovation, and youth development.
 Died: July 27, 2015, at age 83, due to cardiac arrest while delivering a lecture at IIM Shillong.
+
+
 Some Inspiring Quotes DR. A.P.J Abdul Kalam Which I Like Most
+
 "Dream, dream, dream. Dreams transform into thoughts and thoughts result in action."
+
 "You have to dream before your dreams can come true."
+
 "If you want to shine like a sun, first burn like a sun."
+
 "Don’t take rest after your first victory because if you fail in second, more lips are waiting to say that your first victory was just luck."
+
 "Man needs difficulties in life because they are necessary to enjoy the success."
+
 "Failure will never overtake me if my determination to succeed is strong enough."
+
 "Thinking should become your capital asset, no matter whatever ups and downs you come across in your life."
+
 "Let us sacrifice our today so that our children can have a better tomorrow."
+
 "Let us sacrifice our today so that our children can have a better tomorrow."
+
 "Excellence is a continuous process and not an accident."
+
 "Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work"
 
 Dr. A.P.J Abdul Kalam
+
+
 For futher information This Link
